@@ -1,1 +1,1 @@
-Tis  course
+SECP1513 TIS COURSE
