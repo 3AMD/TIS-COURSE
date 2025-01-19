@@ -24,7 +24,7 @@ creative thinking .
 -gave me good information about how this technology can be used for will benefit humans in their lives. but we also
 knew that to achieve this benefit, there are lots of learning and analysis and testing that is done in order to provide a good solution  for the specific situation  .
 -
-🔗 PC Assembles : 
+🔗 Lab : PC Assembles : 
 -fosters hands-on learning and technical skill development, enabling creativity and problem-solving through hardware customization and repair. It is a vital space for innovation and collaboration in technology and learn me how the computer assemble . 
 
 ----------------------------------------------------------------------
