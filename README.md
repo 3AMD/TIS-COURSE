@@ -29,7 +29,7 @@ fosters hands-on learning and technical skill development, enabling creativity a
 ----------------------------------------------------------------------
 Contant me  : 
 gmail    📧 : ttialoo466@gmail.com . 
-Lnkedin  🟦 : https://www.linkedin.com/in/ahmed-ali-a91311283/ 
+Linkedin  🟦 : https://www.linkedin.com/in/ahmed-ali-a91311283/ 
 
 
 
